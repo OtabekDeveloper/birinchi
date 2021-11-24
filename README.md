@@ -1,3 +1,3 @@
 # birinchi
- Islamkhan
+Islamkhan
 Abdulboriy
