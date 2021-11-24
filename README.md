@@ -1,1 +1,3 @@
 # birinchi
+
+Abdulboriy
